@@ -4,7 +4,7 @@
 
 Watch this video tutorial:
 
-[![IMAGE ALT TEXT](https://img.youtube.com/vi/QF-1oIQ4eRA/0.jpg)](https://youtu.be/QF-1oIQ4eRA "Hipp Seg")
+[![IMAGE ALT TEXT](https://img.youtube.com/vi/5eogjQ4f1_k/0.jpg)](https://www.youtube.com/watch?v=5eogjQ4f1_k)
 
 -----
 
